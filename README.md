@@ -28,4 +28,4 @@
 
  Pok. 233 D-21
 
- Konsultacje: pn 16:00-17:00
+ Konsultacje: pn 12:00-13:00
